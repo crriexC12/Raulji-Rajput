@@ -1,2 +1,2 @@
-# Raulji-Rajput
+# Raulji
 Website about Raulji– Hindu Rajput Darbar
